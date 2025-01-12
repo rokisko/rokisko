@@ -4,4 +4,4 @@ zyns been here
 
 LMFAOOO THIS GUY TAGGED HIMSELF. - [zyn](https://github.com/derealizationnss)
 
-[law](https://github.com/solarparfait) was here~
+[deidara](https://github.com/solarparfait) was here~
