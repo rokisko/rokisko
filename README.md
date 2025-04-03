@@ -14,7 +14,8 @@ zyns been here
 <img src="https://i.imgur.com/uq4BWho.png" />
 <img src="https://i.imgur.com/uq4BWho.png" />
 <img src="https://i.imgur.com/uq4BWho.png" />
-<img src="https://i.imgur.com/uq4BWho.png" />
+<img src="https://i.imgur.com/uq4BWho.png" /> https://imgur.com/MoinFTQ
+<img scr="https://imgur.com/MoinFTQ" />
 
 LMFAOOO THIS GUY TAGGED HIMSELF. - [zyn](https://github.com/obito-uchiiha)
 
