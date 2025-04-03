@@ -18,6 +18,7 @@ zyns been here
 <img scr="https://i.imgur.com/MoinFTQ.png" />
 
 https://i.imgur.com/MoinFTQ.png
+https://i.imgur.com/TbjKYc5.png
 LMFAOOO THIS GUY TAGGED HIMSELF. - [zyn](https://github.com/obito-uchiiha)
 
 [deidara](https://github.com/solarparfait) was here~
