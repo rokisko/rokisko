@@ -9,7 +9,7 @@ https://media.discordapp.net/attachments/712875316019855383/1357253088498421822/
 
 https://media.discordapp.net/attachments/712875316019855383/1357253088498421822/tatusomsi.jpg?ex=67ef87f0&is=67ee3670&hm=b73bfc3e5a6a326829cb7f8e0efe3b05ec9ce3ae44c6c8ef7efb9a2e2afd62cc&=&format=webp&width=920&height=835
 
-<img src="[https://files.catbox.moe/19ziyt.png](https://media.discordapp.net/attachments/712875316019855383/1357253088498421822/tatusomsi.jpg)"/>
+<img src="(https://media.discordapp.net/attachments/712875316019855383/1357253088498421822/tatusomsi.jpg)"/>
 zyns been here
 
 [sasuke](https://github.com/curse-manipulation) was here too
