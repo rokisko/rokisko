@@ -10,7 +10,7 @@ zyns been here
 
 [sasuke](https://github.com/curse-manipulation) was here too
 
-<img src="https://i.imgur.com/uq4BWho.png" />
+<img src="[https://i.imgur.com/uq4BWho.png](https://media.forgecdn.net/avatars/thumbnails/1029/815/256/256/638552002544387192.png)" />
 
 LMFAOOO THIS GUY TAGGED HIMSELF. - [zyn](https://github.com/obito-uchiiha)
 
