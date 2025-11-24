@@ -1,5 +1,5 @@
 
-fandoms: investigrave games
+i like investigrave games
 
 <img src="https://media.forgecdn.net/avatars/thumbnails/1029/815/256/256/638552002544387192.png" /> 
 <img src="https://media.forgecdn.net/avatars/thumbnails/1213/391/256/256/638791612586543011.png" />
