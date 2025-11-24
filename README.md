@@ -11,14 +11,7 @@ zyns been here
 [sasuke](https://github.com/curse-manipulation) was here too
 
 <img src="https://i.imgur.com/uq4BWho.png" />
-<img src="https://i.imgur.com/uq4BWho.png" />
-<img src="https://i.imgur.com/uq4BWho.png" />
-<img src="https://i.imgur.com/uq4BWho.png" />
-<img src="https://i.imgur.com/uq4BWho.png" /> https://imgur.com/MoinFTQ
-<img scr="https://i.imgur.com/MoinFTQ.png" />
 
-https://i.imgur.com/MoinFTQ.png
-https://i.imgur.com/TbjKYc5.png
 LMFAOOO THIS GUY TAGGED HIMSELF. - [zyn](https://github.com/obito-uchiiha)
 
 [deidara](https://github.com/solarparfait) was here~
